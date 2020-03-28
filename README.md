@@ -1,1 +1,0 @@
-# barantsev_course_project
